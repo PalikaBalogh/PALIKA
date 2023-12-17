@@ -1,0 +1,2 @@
+# PALIKA
+Jó legeyen
